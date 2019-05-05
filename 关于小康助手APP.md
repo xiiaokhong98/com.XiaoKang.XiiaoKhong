@@ -1,5 +1,5 @@
 # com.XiaoKang.XiiaoKhong
-安卓版【小康助手】APP　
+安卓版【小康助手】APP 
  
  
 安卓版〔小康助手〕APP是个推荐各种在线网站合成一款APP！ 
