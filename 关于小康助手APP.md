@@ -13,7 +13,7 @@
  
 （推荐）：http://tinyurl.com/y9vhd7d9 
  
-（备用）：https://www.pgyer.com/xkdqzs 
+（备用）：https://bccji.com/p/xkzs 
  
 （蓝奏云）：https://www.lanzous.com/b587947 
  
